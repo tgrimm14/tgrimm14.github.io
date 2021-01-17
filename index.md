@@ -1,3 +1,5 @@
+## About Me
+
 ## Education
 
 B.S. Statistics, Brigham Young University, Utah, 2021
