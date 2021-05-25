@@ -2,7 +2,7 @@
 
 ## Education
 
-B.S. Statistics minor in Mathematics, Brigham Young University, Utah, 2021
+B.S. Statistics, Minor in Mathematics, Brigham Young University, Utah, April 2021
 
 Honors: *magna cum laude* (GPA: 3.99/4.0)
 
